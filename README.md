@@ -1,1 +1,1 @@
-I will not be responsible for any damage this script cause.
+Please don't use this to steal someone's Axie Infinity account
